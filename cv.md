@@ -1,7 +1,7 @@
 # __Iryna Malyshka__
 
 ## __Contact__
-**Phone** :+375 44 789 ** **
+**Phone** :+375 44 789 0* **
 
 **Email**: iirinaaryna@gmail.com
 
